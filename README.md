@@ -22,7 +22,7 @@ I thrive on transforming complex infrastructure challenges into elegant solution
 
 ## Let's Connect!
 Feel free to reach out for collaboration, tech talks, or just to say hello!
-- ✉️ Email: personukumar19@gmail.com
+- ✉️ Email: ersonukumar19@gmail.com
 - 📍 Location: Whitefield, Bangalore, IN
 - 📞 Phone: (+91) 7489543610
 - 💼 LinkedIn: [linkedin.com/in/sonu143](https://www.linkedin.com/in/sonu143/)
